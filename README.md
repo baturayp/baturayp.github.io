@@ -1,1 +1,0 @@
-# baturayp.github.io
